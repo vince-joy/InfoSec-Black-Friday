@@ -154,6 +154,10 @@ ProtonMail\
 https://protonmail.com/blog/black-friday-2020/  
 33-50% discounts
 
+Surfshark VPN\
+https://surfshark.com/deals
+83% off + 3 months free
+
 NordVPN\
 https://nordvpn.com/offer/great-deal/  
 68% discount + 3 months free
